@@ -11,3 +11,8 @@
 
 # Table of Content
 ## [xPore Notes](https://docs.google.com/document/d/1iLY41EE_cvKP_4KQcEkTAsBw8FzNPW4gqId9dUpgu_8/edit?usp=sharing)
+## [Biosignal Notes](https://docs.google.com/document/d/13kyvQOppsyTjUXof1_U9tTEeZZXBzKjclgY2UtSLamo/edit?usp=sharing)
+## [Plagarism Notes](https://docs.google.com/document/d/1uuTAlxSC_TtfH2iTBRq_OlRDEk7eFsg_cogOBwxBeuE/edit?usp=sharing)
+## [Ultrasound Notes](https://docs.google.com/document/d/1xsw00fNbygvek08UTf0dThOST5YaNcAB23tijla-EAw/edit?usp=sharing)
+## [Mental Disorder Notes](https://docs.google.com/document/d/1bqKv1QKYljSiUHDRWdwLKwXZMtGJb77_8PhvbVI19rY/edit?usp=sharing)
+## [Arresting Criminals Notes](https://docs.google.com/document/d/1nz1xJYQZu2J8QxAfB6w767X21-j5s5xbvKooXqERvmo/edit?usp=sharing)
