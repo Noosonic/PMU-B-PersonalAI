@@ -1,6 +1,7 @@
 # noosonic
 ### Another Name: Siravich Temboonkiat
 #### Current Hobby: Game Development
+### [Video](https://youtu.be/TWuJZxN0TnE)
 
 ---
 
